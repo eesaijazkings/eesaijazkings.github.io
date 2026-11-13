@@ -1,2 +1,2 @@
 # eesaijazkings.github.io
-fbsdgbsbg
+-# this is not my main account this is for school projects and temp projects
